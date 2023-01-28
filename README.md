@@ -1,7 +1,7 @@
 # Injector-full
 
 # Purchase Private source code + with eac + be emulator   
-  https://discord.gg/yJQt9SjXje
+  https://discord.gg/Iwis
 - Reasonable offers only
 
 # undetected
